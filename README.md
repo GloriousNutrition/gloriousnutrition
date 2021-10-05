@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, my name is Michelle and I am a AfN registered nutritionist. I have always had an interest in nutrition and graduated with a nutrititon degree from Kings College London. Since then I have been working in the nutrition field and completed a masters degree in public health.   👋
 
 <!--
 **GloriousNutrition/gloriousnutrition** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
